@@ -1,6 +1,6 @@
 
  <p align="center">
-  <img src="https://i.postimg.cc/VLW3tTTY/6e5be7100d1f93d36deea1c08926bf96a815dafe.pngraw=true" />
+  <img src="https://64.media.tumblr.com/c552cfe5ac2aca53fb1abf110782a8a0/590118efc5a774c0-8f/s2048x3072/80fac6f29297d538b265e1a03133df8b98fddc00.png" />
 </p>
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center"> probably here from <ins>ponytown!</ins> i'm <ins>offtab</ins> a lot and miss whispers, not that im ignoring you im just focused.  </p>
 
@@ -12,5 +12,5 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　   
                                      <p align="center">
-  <img src="https://i.postimg.cc/13xr95MP/66cf64dc6b4ef2a8825b472271cb0e4cf0485d82.png" />                                                                                                                                                                                                    
+  <img src="https://64.media.tumblr.com/873b0d1e8cce9104b34df39de09fbe35/d8badb97fac31ad3-7e/s1280x1920/c2eb29f4320f5798432e9f0c57283f86a5f2f9a6.png" />                                                                                                                                                                                                    
 
