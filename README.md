@@ -1,8 +1,8 @@
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center"> nate or mark .. isfp + cst timezone .  </p>
 
  <p align="center">
-  <img src="https://64.media.tumblr.com/74d8c299dccefe1e5776c87b8b81a9fa/f51ebad216d0b17c-e5/s500x750/eb1c979d26a8f0154367da941fc1c2d0014ad369.png" />
+  <img src="https://64.media.tumblr.com/d4248edbcd29f548ce4fd07c79fd9f5d/6990ab320abcf46b-4b/s500x750/24ab86158449044e0dde7cf4e887805108e471a5.png" />
 </p>
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center"> probably here from <ins>ponytown!</ins> i'm <ins>offtab</ins>  and miss whispers, not that im ignoring you im just focused.  </p>
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<p align="center"> take a look around look at my websites ! (I AM 7TEEN DNI MINORS.) .  </p>
 
-<p align="center"> check my pony/websites to see if int >.< i don't always talk but im rlly cool , I AM <ins>17</ins> !!　
 
