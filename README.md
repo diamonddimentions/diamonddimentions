@@ -1,4 +1,4 @@
-　 　　<p align="center">　　　　 ![m](https://komarev.com/ghpvc/?username=diamonddimentions&color=red) . $\color{red}{★}$
+　 　　<p align="center">　　　　 ![m](https://komarev.com/ghpvc/?username=diamonddimentions&color=red) . $\color{green}{★}$
 　　
 
  <p align="center"> 
@@ -8,4 +8,4 @@
   <p align="center"> 
 $\color{red}{· · ─── ꒰ঌ·✦·໒꒱ ─── · ·}$
  <p align="center"> 
- " i $\color{green}{will}$ never abandon you $\color{red}{ever}$ . "
+ " i $\color{green}{came}$ back for $\color{yellow}{you}$ ! "
