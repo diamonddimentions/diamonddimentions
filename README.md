@@ -1,4 +1,4 @@
-　 　　<p align="center">　　　　 ![m](https://komarev.com/ghpvc/?username=diamonddimentions&color=blue) . $\color{red}{★}$
+　 　　<p align="center">　　　　 ![m](https://komarev.com/ghpvc/?username=diamonddimentions&color=red) . $\color{red}{★}$
 　　
 
  <p align="center"> 
